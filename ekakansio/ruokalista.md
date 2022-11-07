@@ -1,0 +1,3 @@
+Banaani
+Omena
+Kurkku
